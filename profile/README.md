@@ -11,7 +11,7 @@ no deadlines. no hierarchy. just curiosity and caffeine.
 based in NYC
 
 ### want to join?  
-if you’d like to join, tell us what you’re building — or what you’d like to learn.  
+if you’d like to join, tell us what you’re building - or what you’d like to learn.  
 no requirements. just curiosity and a desire to build together.  
 bring a project. or don’t. just hang out.  
 
